@@ -1,1 +1,1 @@
-# God-revealing-himself.com
+# God-revealing-himself
